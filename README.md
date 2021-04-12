@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @shiraseAllB
+- 🌱 I’m currently learning
